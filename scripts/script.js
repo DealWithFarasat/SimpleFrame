@@ -1,0 +1,1 @@
+// You can use this code, but only if you include a link to my account on your website.
